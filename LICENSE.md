@@ -1,4 +1,4 @@
-# 
+# Premium reversal trading bot extensiones para Mac OS | Exclusivo reversal trading bot extensiones para PC Windows. Con seguimiento de tendencia y API de intercambio centralizado — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
